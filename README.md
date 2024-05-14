@@ -1,1 +1,1 @@
-The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
