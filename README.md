@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
