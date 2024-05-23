@@ -1,1 +1,1 @@
-The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
+The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
