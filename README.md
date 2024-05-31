@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
