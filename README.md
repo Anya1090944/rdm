@@ -1,1 +1,1 @@
-The construction of Stonehenge in England began around 3000 BC.
+Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
