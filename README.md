@@ -1,1 +1,1 @@
-The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
+The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
