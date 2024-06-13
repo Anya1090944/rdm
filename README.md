@@ -1,1 +1,1 @@
-The Battle of Hastings in 1066 saw the Norman conquest of England.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
