@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+Michelangelo completed the ceiling of the Sistine Chapel in 1512.
