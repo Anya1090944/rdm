@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
