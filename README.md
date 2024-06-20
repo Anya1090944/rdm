@@ -1,1 +1,1 @@
-Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
+The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
