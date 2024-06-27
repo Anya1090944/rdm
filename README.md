@@ -1,1 +1,1 @@
-The ancient city of Babylon, famous for the Hanging Gardens, thrived around 1800 BC.
+Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
