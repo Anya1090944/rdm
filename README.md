@@ -1,1 +1,1 @@
-The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
