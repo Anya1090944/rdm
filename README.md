@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
