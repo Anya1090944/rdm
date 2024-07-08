@@ -1,1 +1,1 @@
-Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
