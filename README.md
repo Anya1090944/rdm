@@ -1,1 +1,1 @@
-The fall of the Soviet Union in 1991 marked the end of the Cold War era.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
