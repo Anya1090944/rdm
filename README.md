@@ -1,1 +1,1 @@
-The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
+The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
