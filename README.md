@@ -1,1 +1,1 @@
-The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
+The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
