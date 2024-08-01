@@ -1,1 +1,1 @@
-The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
