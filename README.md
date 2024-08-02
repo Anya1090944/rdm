@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+World War I, also known as the Great War, lasted from 1914 to 1918.
